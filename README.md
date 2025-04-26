@@ -1,2 +1,2 @@
-# Tha-bronx3
-BlindHub
+join my discord 
+https://discord.gg/ExEnyRsC
